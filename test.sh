@@ -1,0 +1,1 @@
+Tuyền đã xem qua
