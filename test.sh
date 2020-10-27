@@ -1,1 +1,1 @@
-Tuyền đã xem qua
+xin chao!
